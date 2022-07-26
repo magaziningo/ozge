@@ -1,0 +1,2 @@
+# ozge
+magazin
